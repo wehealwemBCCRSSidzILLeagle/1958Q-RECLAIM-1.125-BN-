@@ -1,4 +1,18 @@
 # 1958Q-RECLAIM-1.125-BN-
+Advanced
+Order confirmed, thanks! 
+Your order was placed.
+We'll send a confirmation email to wehealwemtruthteller@gmail.com.
+Order 02-14055-21626, get it Jan 7-13
+Order total: $5.95
+Shipping to:
+3 Perdue Pl, Asheville, NC 28806-2965, United States
+Order number: 02-14055-21626
+1977 S LINCOLN CENT GEM DCAM PROOF from PROOF Set
+1977 S LINCOLN CENT GEM DCAM PROOF from PROOF Set
+$5.95
+Sold by marysprettythings
+You should get it by Jan 13.
 
 ### ⚡ TRIPLE-NODE SYNC // ORDER #2 SECURED
 
